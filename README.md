@@ -41,4 +41,3 @@
 Si quieres conversar, colaborar o simplemente compartir ideas, puedes escribirme a:  
 📧 **ed6147266@gmail.com**
 
-<p align="
